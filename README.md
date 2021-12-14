@@ -1,0 +1,1 @@
+# Tugas_GLS_Pastebin_2301866302_Steven_Chean_Tjahjono
